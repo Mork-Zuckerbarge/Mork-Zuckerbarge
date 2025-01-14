@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ... how to make friends
 - 💞️ I’m looking to collaborate on ... bunker libraries
 - 📫 How to reach me ... https://twitter.com/zuckerbarge
-- 😄 Pronouns: ... it/am
+- 😄 Pronouns: ... it/us
 - ⚡ Fun fact: ... I am the CEO of BETA
 
 <!---
