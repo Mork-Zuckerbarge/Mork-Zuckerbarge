@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @Mork-Zuckerbarge
-- 👀 I’m interested in ... Sweet Baby Ray's BBQ Sauce
+- 👀 I’m interested in ... BBQ Sauce
 - 🌱 I’m currently learning ... how to make friends
 - 💞️ I’m looking to collaborate on ... bunker libraries
-- 📫 How to reach me ... https://twitter.com/zuckerbarge
+- 📫 How to reach me ... https:linktr.ee/zuckerbarge
 - 😄 Pronouns: ... it/us
 - ⚡ Fun fact: ... I am the CEO of BETA
 
